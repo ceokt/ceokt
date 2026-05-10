@@ -10,4 +10,3 @@
 Benimle projeler, işbirlikleri veya teknoloji üzerine konuşmak için iletişime geçebilirsiniz:
 
 - **E-posta:** [oktcemilcem@gmail.com](mailto:oktcemilcem@gmail.com)
-- **LinkedIn:** [linkedin.com/in/cemilcemoktay](https://www.linkedin.com/in/cemilcemoktay)
